@@ -12,4 +12,4 @@
 
 * [豆瓣](https://www.douban.com/people/tongwendong/)
 
-* [E书园](https://www.eshuyuan.net/home.php?mod=space&uid=20412&do=profile)
+* [知乎](https://www.zhihu.com/people/tongwendong/)
