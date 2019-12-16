@@ -14,4 +14,4 @@
 
 * [知乎](https://www.zhihu.com/people/tongwendong/)
 
-* [重点](http://www.tongwendong.com/重点.pptx)
+* [重点【点击下载】](http://www.tongwendong.com/point.pptx)
