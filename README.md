@@ -13,5 +13,3 @@
 * [豆瓣](https://www.douban.com/people/tongwendong/)
 
 * [知乎](https://www.zhihu.com/people/tongwendong/)
-
-* [重点【点击下载】](http://www.tongwendong.com/point.pptx)
